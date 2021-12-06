@@ -1,1 +1,0 @@
-Account not updated images
